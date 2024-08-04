@@ -1,0 +1,1 @@
+# MinFinder04Aug24
